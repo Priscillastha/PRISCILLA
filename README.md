@@ -1,4 +1,4 @@
-![Profile Picture](images/profile.jpg)
+
 
 # Hi, I'm Priscilla 👋
 
