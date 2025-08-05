@@ -1,3 +1,4 @@
+![Profile Picture](images/1E3561BC-F9C0-4A1C-BEF0-10BD50F419F9.P_Shre_S25-1.jpeg)
 
 
 # Hi, I'm Priscilla 👋
